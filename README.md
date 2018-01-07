@@ -1,0 +1,2 @@
+# dorceel
+sa ne cunoastem 
